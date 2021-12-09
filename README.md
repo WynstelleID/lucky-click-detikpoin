@@ -1,1 +1,1 @@
-this is lucky click detikpoin
+lucky click detikpoin web
