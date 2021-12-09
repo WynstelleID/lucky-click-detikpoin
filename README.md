@@ -1,0 +1,1 @@
+this is lucky click detikpoin
